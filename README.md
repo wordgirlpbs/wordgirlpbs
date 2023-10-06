@@ -1,4 +1,4 @@
-### Hi there 👋
+### for all tha ponytown bitches
 
 <!--
 **wordgirlpbs/wordgirlpbs** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
