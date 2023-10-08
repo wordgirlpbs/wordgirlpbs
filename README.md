@@ -23,6 +23,8 @@ go to my [strawpage](https://wordgirlpbs.straw.page/) for general info about me
 thats it i think
 
 ~~if you see me at the club dont worry bout it~~
+
+![image](https://files.catbox.moe/ar97y3.gif)
 <!--
 **wordgirlpbs/wordgirlpbs** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
