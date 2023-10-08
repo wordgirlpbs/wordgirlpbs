@@ -1,5 +1,5 @@
 ### for all tha ponytown bitches
-![image](https://github.com/wordgirlpbs/assets/blob/3da6a7b45196ef904f8c64043de7a0b4b35fd017/WG_mobile_app.png)
+![image](https://github.com/wordgirlpbs/assets/blob/3da6a7b45196ef904f8c64043de7a0b4b35fd017/wordgirl_fan_button_by_wolfgangar_dcc3icn-375w-2x.png)
 
 
 local chat can be overwhelming and sometimes im offtab so if i dont see ur message just **whisper**
