@@ -12,11 +12,11 @@ im usually in cosplay so if you recognize who im cosplaying feel free to talk to
 
 **if your 15 and under keep interactions to a minimum**
 
-im ass at rp so no serious rp
+im ass at rp so no *serious* rp
 
 i usually hang out in the library or in spawn or in the homestuck area with my friends
 
-i love ponywatching it is my favorite activity
+i love ponywatching it is my favorite activity :3 
 
 go to my [strawpage](https://wordgirlpbs.straw.page/) for general info about me
 
