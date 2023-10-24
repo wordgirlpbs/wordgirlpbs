@@ -14,7 +14,12 @@ im usually in cosplay so if you recognize who im cosplaying feel free to talk to
 
 im ass at rp so no *serious* rp
 
-i usually hang out in the library or in spawn or in the homestuck area with my friends
+you can usually find me
+
+- in the library
+- in spawn
+- in the MLP area
+- in the homestuck area 
 
 i love ponywatching it is my favorite activity :3 
 
