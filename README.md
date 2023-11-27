@@ -6,7 +6,7 @@ local chat can be overwhelming and sometimes im offtab so if i dont see ur messa
 
 boops and crowns are welcome and appreciated 
 
-my emotes arent stacked that well so sorry for the slow reaction times
+my emotes arent stacked that well so sorry for the slow reaction times9
 
 im usually in cosplay so if you recognize who im cosplaying feel free to talk to me (especially if its ***wordgirl***)
 
@@ -14,7 +14,7 @@ im usually in cosplay so if you recognize who im cosplaying feel free to talk to
 
 im ass at rp so no *serious* rp
 
-no i will not kindate with you i have a loving girfriend
+**no i will not kindate with you i have a loving girfriend**
 
 you can usually find me
 
