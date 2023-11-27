@@ -14,6 +14,8 @@ im usually in cosplay so if you recognize who im cosplaying feel free to talk to
 
 im ass at rp so no *serious* rp
 
+no i will not kindate with you i have a loving girfriend
+
 you can usually find me
 
 - in the library
