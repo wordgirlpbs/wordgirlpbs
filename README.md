@@ -14,7 +14,7 @@ im usually in cosplay so if you recognize who im cosplaying feel free to talk to
 
 im ass at rp so no *serious* rp
 
-**no i will not kindate with you i have a loving girfriend**
+**no i will not kindate with you i have a [loving girfriend](https://github.com/WordGirlPBS/yuri/blob/33e73145d89203cd0d42b5dae90e152aea2df3e3/ezgif-4-4de6883c42.png)**
 
 you can usually find me
 
