@@ -10,7 +10,7 @@ my emotes arent stacked that well so sorry for the slow reaction times9
 
 im usually in cosplay so if you recognize who im cosplaying feel free to talk to me (especially if its ***wordgirl***)
 
-**if your 15 and under keep interactions to a minimum**
+**if you're 15 and under keep interactions to a minimum**
 
 im ass at rp so no *serious* rp
 
