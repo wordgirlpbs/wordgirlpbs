@@ -1,7 +1,7 @@
 ### for all tha ponytown bitches
 ![image](https://github.com/wordgirlpbs/assets/blob/3da6a7b45196ef904f8c64043de7a0b4b35fd017/wordgirl_fan_button_by_wolfgangar_dcc3icn-375w-2x.png)
 
-[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=313vqh74xftdht454mh5w2rtihfu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=313vqh74xftdht454mh5w2rtihfu&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.vercel.app/api/view?uid=313vqh74xftdht454mh5w2rtihfu&redirect=true)
 
 local chat can be overwhelming and sometimes im offtab so if i dont see ur message just **whisper**
 
