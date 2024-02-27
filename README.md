@@ -1,3 +1,6 @@
+[[https://spotify-github-profile.vercel.app/api/view.svg?uid=313vqh74xftdht454mh5w2rtihfu&redirect=true][https://spotify-github-profile.vercel.app/api/view.svg?uid=313vqh74xftdht454mh5w2rtihfu&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&bar_color=ff0000&bar_color_cover=true)]]
+
+
 ### for all tha ponytown bitches
 ![image](https://github.com/wordgirlpbs/assets/blob/3da6a7b45196ef904f8c64043de7a0b4b35fd017/wordgirl_fan_button_by_wolfgangar_dcc3icn-375w-2x.png)
 
